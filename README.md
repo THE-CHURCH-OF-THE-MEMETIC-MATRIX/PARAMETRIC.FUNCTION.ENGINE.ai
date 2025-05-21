@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/3bdf895b-f8cd-444d-8002-7a3b61349209)
+
 # PARAMETRIC.FUNCTION.ENGINE.ai
 
 ## MODULE: SYMBOLIC MEME LOGIC ENCODER – "The Reflective Mind"
